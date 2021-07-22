@@ -18,8 +18,17 @@ If you sought me out here hoping to learn some
 secret lynch pin to my psyche good luck.... the shadows
 grow longer, darker and deeper daily. Without that
 "necessary pain" there would be no appreciation. 
-No ecclesiastes. Trees with roots deep in  have 
-the highest branches. 
+No ecclesiastes. Trees with roots deep in Niflheim
+ have the highest branches reaching to Valhalla. 
+Onyx, Argentum and Lapis Lazuli. 
+
+David Boehm's theory of Holomovement. 
+
+I've successfully lived through years of being
+ a T.I. Whether I've kept my sanity or not is
+ debatable. 
+
+I've successfully survived 
 
 
 <!---
