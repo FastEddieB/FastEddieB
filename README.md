@@ -83,11 +83,81 @@ I saw a comet burn green in the past week as it
  entered earth's upper atmosphere. Aurora Borealis
 green fire trailing behind a pale stone. Instantly
 I thought of Hades and Hellfire. Burning souls. 
-Death riding the Pale Horse. 
+Death riding the Pale Horse. Or Darken Rahl, his 
+specters in the Underworld where he was sent by 
+his son Richard Rahl, Richard Cypher,the Lord Rahl
+ of D'Hara and the Master of the D'Haran Empire. 
+The rightful Seeker of Truth, the first War Wizard 
+to be born in over three thousand years, and was
+ the husband of the Mother Confessor of all the 
+Midlands, Kahlan Amnell. After being killed and 
+sent to the Underworld to join The Keeper whom Darken
+ Rahl followed. 
 
+Although Darken Rahl was killed by opening the Boxes
+ of Orden, his opening the Boxes allowed for a
+ tear in the veil which allowed the Stone of Tears
+ to be in the world. The veil is the boundary
+ separating the underworld from the world of life. 
+With it torn, the keeper could potentially
+ consume the world and destroy all life. Richard, 
+being the last war wizard in approximately 3,000 
+years was the only one who could prevent this from
+ happening by closing the veil. Because war wizards 
+are born with both sides of the gift: additive and
+ subtractive magic.
+
+However, Richard had fallen in love with Kahlan,
+ power and all, and was as such immune to her 
+magic. Using the charade of being under Kahlan's
+ power, Richard utilized the Wizard's First Rule
+ and tricked Darken Rahl into opening the incorrect 
+Box of Orden, the power of which subsequently
+ destroyed him.
+
+Eventually, Richard saved the Old and New Worlds 
+from the Imperial Order, the chimes, and 
+Chainfire by creating the world without magic. 
+
+[When Darken Rahl is in the Underworld and
+ projects to the liv9ng world AND when he came
+ as a specter or specter's seeped through the
+ veil, the effect used was a pale green hellfire. 
+I think in LOTR when the Fellowship enters the 
+cave and Aragorn fights the Army of the Dead, that
+ same transparent, pale green is used for the
+ Dead Army. 
+
+Life imitates art imitates life. 
+
+Familiarity, nice special effect ambiance....
+mimicry, cloning, copying movements in a story-
+board, cliche catch-phrases and niche sounds are 
+methods used in entertainment industries, gaming, 
+advertisement design and cleverly bringing a 
+joke circling back to meet previous delivery are
+ all part of the process of immersion.... : feel-
+ing as if you are a part of the story, intently 
+engrossed in the material as if a character on 
+the stage... CGI and sound effects have to be by
+law not a direct duplication of someone else's 
+creation or work. That dancing pale green fire 
+aura has been synonymous with death, spirits and
+the Underworld for decades. Inuit and Greenland
+eskimo tribes called Aurora Borealis the dance of
+lost children; or Northern Ligjts were referenced
+ as ancestors or spirits meeting in merriment. Famil-
+iarity is often used to soften a viewer's percep-
+tin or appeal to the masses because legend and folk-
+lore already had foundations prepared. Iconography. 
+
+Effortlessly Deciphering Cyphers
+
+Seeing common themes
 
 <!---
-FastEddieB/FastEddieB is a ✨ special ✨ repository because its 
-`README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
+FastEddieB/FastEddieB is a ✨ special ✨ repository
+ because its `README.md` (this file) appears on your 
+GitHub profile.You can click the Preview link to take 
+a look at your changes.
 --->
