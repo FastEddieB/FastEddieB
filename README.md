@@ -71,7 +71,21 @@ We as a race have failed the simulation EVERY
  time through fear, division and a worldly ego. 
 Unity, Love and a deep personal relationship with
  the Source of All Life is the only way THROUGH. 
-Tuatha de deNa'an
+Tuatha Dé Danann, Tagnarok, the Apocalypse and 
+man's inner spiritual battle are all perpetual
+ struggles. The side we Champion in this phys
+-ical life between Light and dark fuels the tide 
+of battle in all realms here and now. 
+
+....and the hereafter. 
+
+I saw a comet burn green in the past week as it
+ entered earth's upper atmosphere. Aurora Borealis
+green fire trailing behind a pale stone. Instantly
+I thought of Hades and Hellfire. Burning souls. 
+Death riding the Pale Horse. 
+
+
 <!---
 FastEddieB/FastEddieB is a ✨ special ✨ repository because its 
 `README.md` (this file) appears on your GitHub profile.
